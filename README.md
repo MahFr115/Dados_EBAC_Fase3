@@ -4,9 +4,9 @@ Módulo 16: Documentos
 
 Projeto 2: Resolução com os arquivos de entrega
 
-Módulo 17: Tarefa 01 | Tarefa 02 | 
+Módulo 17: Tarefa 01 | Tarefa 02 | Tarefa 03
 
-Módulo 18:  | 
+Módulo 18: Tarefa 01 | Tarefa 02 
 
 Módulo 19:  | 
 
