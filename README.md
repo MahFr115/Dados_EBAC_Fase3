@@ -8,6 +8,6 @@ Módulo 17: Tarefa 01 | Tarefa 02 | Tarefa 03
 
 Módulo 18: Tarefa 01 | Tarefa 02 
 
-Módulo 19:  | 
+Módulo 19:  Tarefa 01 e 02 
 
 Módulo 20: 
